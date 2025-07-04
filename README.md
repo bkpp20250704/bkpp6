@@ -15,4 +15,4 @@
 
 同时，针对新用户提供详细的观影指南和操作说明，帮助大家快速上手。平台不断优化内容和技术，通过高质量外链和社交推广，提升网站权威性和搜索排名。精准的关键词布局和丰富实用的内容，结合优质的用户体验，是我们实现“日本AV免费”关键词排名第一的关键。未来，我们将持续更新和改进，致力为用户带来最佳的免费视频服务。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/bkpp20250704/bkpp6 ）</span>
